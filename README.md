@@ -1,1 +1,1 @@
-        !db48116bf8c02cc7e1c53f386fccdb0e.jpg (nixy)
+![si](https://media.discordapp.net/attachments/1343411125240336425/1369138792069333084/IMG_8718.jpg?ex=681b6e1d&is=681a1c9d&hm=1bf01c846bd5b855131090338a0d1540eb73bdd4f0af6e813bf3725be774d777&)
