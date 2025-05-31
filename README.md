@@ -1,1 +1,1 @@
-![si](https://cdn.discordapp.com/attachments/1370844332009193605/1371941081582932059/images_2_1.jpeg?ex=6824f733&is=6823a5b3&hm=6e3ab4e49e7ad6609b296875391ea5e9bc27e3c3cded5183aedc9ad8c0b52337&)
+:3
